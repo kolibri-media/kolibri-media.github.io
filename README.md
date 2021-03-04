@@ -1,1 +1,1 @@
-Under construction.
+Kolibri is under construction.
